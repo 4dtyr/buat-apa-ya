@@ -1,1 +1,1 @@
-# buat-apa-ya
+# lupa, ga bisa code:v
